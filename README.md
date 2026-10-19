@@ -1,0 +1,2 @@
+# premium-ale-brew-001-traditional-ale-mash-temperatu
+Tired of inconsistent mash temperatures ruining your traditional ales? Stop guessing and start logging with a dedicated Notion template designed for the precision that classic ale styles demand.  The Traditional Ale Mash Temperature Step Log solves the pain of scattered notes and forgotten steps by providing a structured, repeatable system. It's th
